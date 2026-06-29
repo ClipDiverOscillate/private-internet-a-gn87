@@ -1,4 +1,4 @@
-
+Private Internet Access (PIA) advanced Extension: P2P-support & smart-DNS is the best Private Internet Access (PIA) extension, featuring P2P-support and smart-DNS. Secure, fast,
 
 
 
